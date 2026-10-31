@@ -4,7 +4,7 @@ I'm Alizée, an international SEO and GEO consultant based in Strasbourg. I help
 
 I post on [LinkedIn](https://www.linkedin.com/in/alizeebaudez/) and write [Beyond Organic](https://alizeebaudez.com/newsletter), a newsletter on international SEO and AI search. I speak at search conferences, including Google Search Central Live Deep Dive in Barcelona this year, and teach SEO at EM Strasbourg, Université de Strasbourg and Epitech.
 
-Off screen, I knit. My brand colours are named after yarn.
+Off screen, I knit.
 
 ### What's here
 
